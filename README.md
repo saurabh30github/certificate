@@ -1,2 +1,2 @@
-[cert-1089-25455312.pdf](https://github.com/saurabh30github/certificate/files/8392721/cert-1089-25455312.pdf)
-[skill up learn.pdf](https://github.com/saurabh30github/certificate/files/8392722/skill.up.learn.pdf)
+![cert-1089-25455312](https://user-images.githubusercontent.com/102663074/161139895-d652a623-66be-43b7-a21e-fcb70cde6365.jpg)
+
